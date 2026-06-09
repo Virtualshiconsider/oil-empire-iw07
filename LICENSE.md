@@ -1,4 +1,4 @@
-
+ink game Scripts no-ban offers the most advanced ink game Script, with instant win and aimbot. Perfect for dominating any match.
 
 
 
